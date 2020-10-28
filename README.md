@@ -1,6 +1,6 @@
 ### Hi there 👋 I am AJAY JOSEPH 
 
-At the end of the day, my goal was to be the best Hacker 
+AT THE END OF THE DAY, MY GOAL TO BE THE BEST HACKER.
 
 <!--
 **ajay-joseph-cyber/ajay-joseph-cyber** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
