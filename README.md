@@ -1,4 +1,4 @@
-### Hi there 👋 I am AJAY JOSEPH 
+### Hi 👋 I am AJAY JOSEPH 
 
 AT THE END OF THE DAY, MY GOAL TO BE THE BEST HACKER.
 
