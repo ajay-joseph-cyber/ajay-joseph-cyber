@@ -1,9 +1,11 @@
 
 
-AT THE END OF THE DAY, MY GOAL TO BE THE BEST HACKER.
+
 
 <h1 align="center">Hi 👋, I'm AJAY JOSEPH</h1>
 <h3 align="center">A passionate frontend developer from India</h3>
+AT THE END OF THE DAY, MY GOAL TO BE THE BEST HACKER.
+
 
 - 🌱 I’m currently learning **Cyber Security**
 
