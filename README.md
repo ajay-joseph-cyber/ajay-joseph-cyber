@@ -5,7 +5,7 @@
 
 <h1 align="center">Hi 👋, I'm AJAY JOSEPH</h1>
 <h3 align="center">A LiTtLe PrOgReSs EaCh DaY, aDdS uP tO bIg ReSuLtS...</h3>
-AT THE END OF THE DAY, MY GOAL TO BE THE BEST HACKER.
+AT THE END OF THE DAY, MY GOAL TO BE THE BEST HACKEr
 
 
 
