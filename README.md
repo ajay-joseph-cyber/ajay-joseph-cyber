@@ -4,14 +4,15 @@
 
 
 <h1 align="center">Hi 👋, I'm AJAY JOSEPH</h1>
-<h3 align="center">A LiTtLe PrOgReSs EaCh DaY, aDdS uP tO bIg ReSuLtS...</h3>
+
+<h3 align="center">🍑  🎀  𝐻𝒶𝒸𝓀𝒾𝓃𝑔 𝒾𝓈 𝑒𝓍𝓅𝓁😍𝒾𝓉𝒾𝓃𝑔 𝓈𝑒𝒸𝓊𝓇𝒾𝓉𝓎 𝒸🌞𝓃𝓉𝓇💍𝓁𝓈 𝑒𝒾𝓉𝒽𝑒𝓇 𝒾𝓃 𝒶 𝓉𝑒𝒸𝒽𝓃𝒾𝒸𝒶𝓁, 𝓅𝒽𝓎𝓈𝒾𝒸𝒶𝓁 💙𝓇 𝒶 𝒽𝓊𝓂𝒶𝓃-𝒷𝒶𝓈𝑒𝒹 𝑒𝓁𝑒𝓂𝑒𝓃𝓉.  🎀  🍑</h3>
 AT THE END OF THE DAY, MY GOAL TO BE THE BEST HACKEr
 
 
 
 - 🌱 I’m currently learning **Cyber Security**
 
-- 💬 Ask me about **Be Friendly Mind**
+- 💬 Ask me about **(っ◔◡◔)っ ♥ If  Your ego speaҜs with ɱe then my attitude replies You. ♥**
 
 - 📫 How to reach me **josephajay870@gmail.com**
 
